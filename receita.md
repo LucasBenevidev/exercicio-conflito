@@ -2,7 +2,7 @@
 
 ## Ingredientes
 - 3 cenouras médias
-- 3 ovos
+- 4 ovos
 - 2 xícaras de açúcar
 - 2 xícaras de farinha de trigo
 - 1 xícara de óleo
